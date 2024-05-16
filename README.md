@@ -1,2 +1,0 @@
-# portofolio
-fajri's portofolio
